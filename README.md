@@ -1,3 +1,3 @@
-i dont code crap im just barely smart enough to copy paste
+# i sometimes code stuff and i sometimes copy paste
 
-[alosh](https://github.com/aloshTM) was here <3
+not my fault its a basic function on a keyboard 🤷‍♀️
