@@ -2,7 +2,7 @@
 
 not my fault its a basic function on a keyboard 🤷‍♀️
 
-accomplishments:
+accomplishments: <br>
 uhh
 
 Yeah thats it
