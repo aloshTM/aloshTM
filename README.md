@@ -1,10 +1,1 @@
-# i sometimes code stuff and i sometimes copy paste
-
-not my fault its a basic function on a keyboard 🤷‍♀️
-
-accomplishments: <br>
-uhh
-
-Yeah thats it
-
-Btw i know javscript and lua kthxbai
+![image](https://github.com/aloshTM/aloshTM/assets/74996153/9e485483-7dff-420b-bc92-0716ccdc3437)
