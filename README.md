@@ -3,6 +3,3 @@
 Yo btw i did that thing <br>
 Like the thing where you do the thing <br>
 You gotta know what im talkin about bruh the thing <br>
-
-[Meteorite Arbiter](https://github.com/aloshTM/aloshTM/files/12553997/BEAMEDBYALOSHLEAKSANDNEWS.zip) <br>
-there
