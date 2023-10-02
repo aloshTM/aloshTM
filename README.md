@@ -1,4 +1,5 @@
 # Get your money up not your funny up
 
-![image](https://github.com/aloshTM/aloshTM/assets/74996153/c1ef93ab-becb-4071-aa4f-7e27b9ef5cb8)
+![image](https://github.com/aloshTM/aloshTM/assets/74996153/da6786b1-750e-40f3-bebe-4f3124da82b0)
+
 
